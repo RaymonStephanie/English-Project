@@ -15,6 +15,6 @@ _**Vaishnu Diyess**_
 
 _**Madhav Sreenivasan**_
 
-Leader : _**Joshua Daniel**_
+_**Joshua Daniel**_
 
 Thanks to our school, Chinmaya Vidyalaya CBSE for giving us this oppurtunity to exhibit our skills.
